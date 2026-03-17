@@ -1,4 +1,4 @@
-# Política de Privacidad - ObfusDevz
+# Política de Privacidad - ObfusADevz
 
 Última actualización: 17 de marzo de 2026
 
